@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Barbequesause
 - 👀 I’m interested in cooking, gaming, diy, moutain walks
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on erm
-- 📫 How to reach me find me
+- 💞️ I’m looking to collaborate on: i like military guys
+- 📫 How to reach: me find me
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i like potatos
 
